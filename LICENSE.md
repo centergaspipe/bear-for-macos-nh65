@@ -1,4 +1,4 @@
-
+updated Extension for Bear for macOS - quick search and offline access offers the most advanced Bear for macOS extension, with quick search and offline access. Ideal for
 
 
 
